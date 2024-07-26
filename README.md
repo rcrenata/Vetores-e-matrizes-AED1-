@@ -1,1 +1,7 @@
-[Lista vetores e matrizes.pdf](https://github.com/user-attachments/files/16385224/Lista.vetores.e.matrizes.pdf)
+![Lista1](https://github.com/user-attachments/assets/3b2e226d-acfd-4c2e-a927-1ac5e8012f95)
+![Lista6](https://github.com/user-attachments/assets/0551f4c1-94fc-4c1d-b857-49b57bbe22c2)
+![Lista5](https://github.com/user-attachments/assets/9d41f05d-af57-4920-b716-baad8ad7c88d)
+![Lista4](https://github.com/user-attachments/assets/ca634899-39fe-4672-9519-b6622a3efba9)
+![Lista3](https://github.com/user-attachments/assets/40e29de0-edc2-49d7-81c9-2fe07a5055ab)
+![Lista2](https://github.com/user-attachments/assets/180369cb-2b5a-4023-9f0f-bcb759bb9701)
+![Lista7](https://github.com/user-attachments/assets/3ebf5037-5438-4271-b3ef-ff62b464a502)
